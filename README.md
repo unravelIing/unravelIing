@@ -12,8 +12,7 @@ ${\textsf{\color{#CC62A5}𝑠𝑡𝑖𝑡𝑐ℎ}}$
 ㅤ ${\textsf{\color{#AD54A8}𝑚𝑒}}$ㅤㅤ 
 ${\textsf{\color{#8B43A1}𝑢𝑝?}}$
 
-[<img Width="130" height="120" alt="1000024584" src="https://github.com/user-attachments/assets/13f7bdfe-5b43-43c0-951b-0a1764283de9" />
-](https://ezrael.atabook.org/)
+[<img Width="130" height="120" alt="1000024584" src="https://github.com/user-attachments/assets/13f7bdfe-5b43-43c0-951b-0a1764283de9" />](https://ezrael.atabook.org/)
 
 
  
