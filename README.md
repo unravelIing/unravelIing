@@ -1,5 +1,5 @@
 <div align="center">
-<img width="800" height="450" alt="1000024561" src="https://github.com/user-attachments/assets/2499e14e-8c91-452c-99f2-81ec332e2e15" />
+<img width="1000" height="255" alt="1000024561" src="https://github.com/user-attachments/assets/e6778277-ca51-422b-83e7-45216091fb6d" />
 <img width="736" height="414" alt="1000024579" src="https://github.com/user-attachments/assets/2e67458f-8bdf-44cd-8c42-14598b70503a" />
 
 ㅤㅤ ㅤ
@@ -17,4 +17,4 @@ ${\textsf{\color{#8B43A1}𝑢𝑝?}}$
 
 
  
-<img width="800" height="450" alt="1000024561" src="https://github.com/user-attachments/assets/1709d2c2-011d-4dda-bfb6-7c9baeb49f81" />
+<img width="1000" height="255" alt="1000024561" src="https://github.com/user-attachments/assets/452afd14-598b-4b99-8586-d2551d4ce483" />
