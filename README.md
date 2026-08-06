@@ -15,5 +15,12 @@ ${\textsf{\color{#8B43A1}𝑢𝑝?}}$
 [<img Width="130" height="120" alt="1000024584" src="https://github.com/user-attachments/assets/13f7bdfe-5b43-43c0-951b-0a1764283de9" />](https://ezrael.atabook.org/)
 
 
- 
+ㅤㅤ ㅤ
+ ${\textsf{\color{#8B43A1}𝐻𝐸}}$
+ ${\textsf{\color{#CC62A5}ᛝ}}$
+ ${\textsf{\color{#AD54A8}𝐻𝐼𝑀}}$ㅤㅤㅤ
+ ${\textsf{\color{#AD54A8}𝐅𝐈𝐋}}$
+ ${\textsf{\color{#CC62A5}/}}$
+ ${\textsf{\color{#8B43A1}𝑬NG}}$
+ ㅤㅤ ㅤ
 <img width="1000" height="255" alt="1000024561" src="https://github.com/user-attachments/assets/452afd14-598b-4b99-8586-d2551d4ce483" />
