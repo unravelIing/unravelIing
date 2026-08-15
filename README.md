@@ -13,6 +13,7 @@ ${\textsf{\color{#CC62A5}𝑠𝑡𝑖𝑡𝑐ℎ}}$
 ${\textsf{\color{#8B43A1}𝑢𝑝?}}$
 
 [<img Width="130" height="120" alt="1000024584" src="https://github.com/user-attachments/assets/13f7bdfe-5b43-43c0-951b-0a1764283de9" />](https://ezrael.atabook.org/)
+[<img width="130" height="120" alt="1000024923" src="https://github.com/user-attachments/assets/ce1fd198-ab95-4f44-8034-7b748e3669eb" />](https://ezraelssz.straw.page/)
 
 
 ㅤㅤ ㅤ
